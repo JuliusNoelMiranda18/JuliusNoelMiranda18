@@ -1,6 +1,6 @@
 ## ⚡ Hi, I'm Joules (Always have the capacity to do work)</br>
 🎓 University of the Philippines Manila — Bachelor of Science in Computer Science</br>
-📐 Calculus and statistics enthusiast</br>
+📐 Statistics and Calculus enthusiast</br>
 🤔 Curious about me: https://www.linkedin.com/in/julius-noel-miranda-b96a9832a/</br>
 📫 Contact me: jvmiranda@up.edu.ph</br>
 🏈 Interest: Competitive sports (NFL fan)</br>
